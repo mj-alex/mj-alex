@@ -1,1 +1,1 @@
-Finding solutions to water related issues
+Solutions to water related issues
